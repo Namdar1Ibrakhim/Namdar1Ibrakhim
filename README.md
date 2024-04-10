@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Namdar1Ibrakhim
-- 👀 I’m interested in IT
-- 🌱 I’m currently learning in SDU
 - 📫 How to reach me namdaribrahim04@gmail.com
 - 📫 My instagram and telegram: @abservd
 
