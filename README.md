@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Namdar1Ibrakhim
+- 👋 Hi, I’m Ibrakhim
 - 📫 How to reach me namdaribrahim04@gmail.com
 - 📫 My instagram and telegram: @abservd
 
